@@ -2,4 +2,4 @@
 
 I stydy in Netology
 
-14/08/2023
+20.08.2023
